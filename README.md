@@ -1,2 +1,5 @@
 # nycolas
-## carne so cai no prato de vegano.Now a nigga can't answer calls 'cause I'm ballin'
+## professor mim de um punhado de nota 10
+
+
+
